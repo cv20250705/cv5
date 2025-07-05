@@ -14,6 +14,6 @@
 操作简单，无需注册，点击即可观看。平台支持跨设备播放，手机、平板、电脑均可享受顺畅的观影体验。同时，我们采用HTTPS加密技术，确保你的隐私安全，观看更安心。
 立即访问，畅享日本AV免费高清影片，尽情体验！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/cv20250705/cv5 ）</span>
 
 
